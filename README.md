@@ -85,7 +85,7 @@ To begin my career as a Data Analyst where I can apply my analytical thinking, p
 
 📧 Email: **hemamaheswarikasireddy99@gmail.com**
 
-💼 LinkedIn: **https://www.linkedin.com/in/YOUR-LINKEDIN-USERNAME**
+💼 LinkedIn: **www.linkedin.com/in/hema-maheswari-kasireddy-10a229289**
 
 ---
 
